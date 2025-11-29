@@ -4,4 +4,4 @@
     
     self consist UNIT &amp; keep growing UNREAL automation (from cell to singularity) based on DNA &amp;&amp; RNA Customized Stand
    
-    Si element is stable between metal element and non-metal element periodic table
+    Si element is stable between metal chemistry element and non-metal chemistry element periodic table
